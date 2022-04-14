@@ -1,2 +1,2 @@
 # RusherHack
-Get it for free before dha tasty DMCA
+John stop the dmca 
